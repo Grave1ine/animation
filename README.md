@@ -1,0 +1,1 @@
+Условия тут https://kazakovanton.notion.site/Animations-57836668a61c42c2a18bdd4e44f0739c
